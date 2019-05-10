@@ -1,0 +1,1 @@
+# portfolio_talya_kotler
